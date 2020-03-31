@@ -1,2 +1,2 @@
-# doramas-juan-paula
+# DORAMAS A&J
 doramas
